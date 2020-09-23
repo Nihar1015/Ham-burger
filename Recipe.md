@@ -1,0 +1,9 @@
+- Add 80% lean ground beef to a large bowl.
+- Add Worcestershire sauce, seasoning salt, garlic powder, and pepper.
+- Mix with your hands until well combined.
+- Divide the beef into fourths.
+- Use your hands to form 4 hamburger patties 3/4 inch thick.
+- Use your thumbs to make an indention in the middle of the patties.
+- Grill over medium-high heat for about 4 minutes on each side.
+- Serve on hamburger buns.
+- Top with your favorite traditional burger toppings (lettuce, tomato, onion, pickles, ketchup, etc.).
